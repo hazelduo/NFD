@@ -1,7 +1,7 @@
 # NFD
 BY nasir ali
-#Facebook http://m.facebook.com/hazel.duo.5
-Follow me on instagramm @hazelduo
+#Facebook http://m.facebook.com/hafeezemami
+Follow me on instagramm @hafeezemamiofficial
 
 
 #HOW TO INSTALL
