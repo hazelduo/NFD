@@ -1,6 +1,6 @@
 # NFD
 BY nasir ali
-#Facebook http://m.faceook.com/hazel.duo.5
+#Facebook http://m.facebook.com/hazel.duo.5
 Follow me on instagramm @hazelduo
 
 
